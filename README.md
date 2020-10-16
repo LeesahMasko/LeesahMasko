@@ -1,4 +1,4 @@
-### Hi there 👋 I am Lisa!
+### Hi there 👋 I'm Lisa!
 
 
 - 🔭 I’m currently working on a website for the non-profit group, Bridges to Prosperity.  They raise funds to build footbridges in rural areas around the globe.  The bridges help adults and children safely get to schools, markets and medical facilities. Making everyday life less precarious. 
