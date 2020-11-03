@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning everything I possibly can about web-development and computer science.
 
-- 💬 Ask me about which episode you should skip when watching BattleStar Galactica for the first time. 
+- 💬 Ask me about which episodes you should skip when watching BattleStar Galactica for the first time. 
 
 - 📫 How to reach me: https://www.linkedin.com/in/lisamjmaskovich/
 
