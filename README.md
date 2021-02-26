@@ -1,11 +1,11 @@
 ### Hi there 👋 I'm Lisa!
 
 
-- 🔭 I’m currently working on a website for the non-profit group, Bridges to Prosperity.  They raise funds to build footbridges in rural areas around the globe.  The bridges help adults and children safely get to schools, markets and medical facilities. Making everyday life less precarious. 
+- 🔭 I’m currently on the job-hunt.  Do you want to hire me?  I promise I'm not too crazy. :)  
 
-- 🌱 I’m currently learning everything I possibly can about web-development and computer science.
+- 🌱 I’m currently learning GraphQL and everything else I possibly can about web-development and computer science.
 
-- 💬 Ask me about which episodes you should skip when watching BattleStar Galactica for the first time. 
+- 💬 Ask me about how I lost/broke my first set of tooth retainers after I got my braces off.  (My parents were not thrilled) 
 
 - 📫 How to reach me: https://www.linkedin.com/in/lisamjmaskovich/
 
