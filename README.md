@@ -11,5 +11,5 @@
 
 - 😄 Pronouns: She/Her
 
-- ⚡ Fun fact: I like to skateboard, ride my bike, and bake/eat anything delicious.  I enjoy learning and trying to make everyday life fun!
+- ⚡ Fun fact: I like to ride my bike, skateboard and bake/eat anything delicious.  I enjoy learning and trying to make everyday life fun!
 
